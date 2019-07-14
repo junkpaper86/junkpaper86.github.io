@@ -1,4 +1,5 @@
-# junkpaper86.github.io
+# Language Exchange Calendar
+## Korean & English 1:1 exchange
 
 Hello Guys, thank you for having interest on my wife's language exchange. Please let me know through Kakao to add or remove the schedule.
 
